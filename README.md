@@ -1,1 +1,0 @@
-# MichaelShestopalov.github.io
